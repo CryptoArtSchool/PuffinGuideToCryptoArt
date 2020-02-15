@@ -7,7 +7,7 @@ A compendium of reactions, interpretations &amp; comments on some of the best ar
 
 https://makersplace.com/acekennedy/blue-star-1-of-20-15622/
 
-I think this artwork is cool, from the cute muse to the great tonal qualities of the piece. She makes an interesting subject; just what is her finger doing? From the title “Blue Star” it suggests to me that she has changed a blue star on her cheek to white. There's a certain magical quality about this action. Certainly the non-symmetry of star colour makes her look more attractive. The play of white light against blue shadows adds great depth and the star buckle on her overalls is an especially nice detail.
+I think this artwork is cool, from the cute muse to the great tonal qualities of the piece. She makes an interesting subject; just what is her finger doing? From the title “Blue Star” it suggests to me that she has changed a blue star on her cheek to white. There's a certain magical quality about this action. Certainly, the non-symmetry of star colour makes her look more attractive. The play of white light against blue shadows adds great depth and the star buckle on her overalls is an especially nice detail.
 
 ## Artplusbrad
 
@@ -141,7 +141,7 @@ Stardust by DinizBr is an homage to David Bowie and his Ziggy Stardust creation.
 
 https://makersplace.com/dinizbr/trick-or-treat-1-of-1-15047/
 
-Entitled, Trick or Treat, this Halloween artwork certainly is interesting. I would not wish to be confronted with this zombie child on a dark night! Heidy has done a great job with this black and white creation. I like the way that the light bounces off the panels behind the subject and the overall Gothic ambiance. She could well be situated in some old, long abandoned mansion. The girl, herself, is posed in an unnatural way which adds to the overall chilling mood. Small details such as the bow in her hair signal to me that at one time she was human. Verdict: treat.
+Entitled, Trick or Treat, this Halloween artwork certainly is interesting. I would not wish to be confronted with this zombie child on a dark night! Heidy has done a great job with this black and white creation. I like the way that the light bounces off the panels behind the subject and the overall Gothic ambience. She could well be situated in some old, long-abandoned mansion. The girl, herself, is posed in an unnatural way which adds to the overall chilling mood. Small details such as the bow in her hair signal to me that at one time she was human. Verdict: treat.
 
 ## Dylan Gilchrist
 
@@ -157,8 +157,8 @@ The appropriately named “Shapes and Colours” interests me with its complex c
 
 https://makersplace.com/ea1729/looks-like-you-picked-the-wrong-week-to-quit-sniffing-glue-1-of-3-15824/
 
-This picture appeals to me from a sinister point of view. The dark colours, blacks and reds give it that overall feeling of doom. I like the effects that you have created with the glitches, it's not overdone.
-It's certainly quite a trippy experience as hinted at by the title of the piece. I like to hunt in these kinds of pictures to see what I see. Firstly, I see that there is a Trumpesque suited person on the bottom sides. Next I see a replication of that suited person at the top, but more of a skull-like effect. It's interesting because in the top centre panel I see a horse's head fading in and out. All of this is topped off with a fiery explosion.
+This picture appeals to me from a sinister point of view. The dark colours, blacks and reds give it that overall feeling of doom. I like the effects that have been created with the glitches, it's not overdone.
+It's certainly quite a trippy experience as hinted at by the title of the piece. I like to hunt in these kinds of pictures to see what I see. Firstly, I see that there is a Trumpesque suited person on the bottom sides. Next, I see a replication of that suited person at the top, but more of a skull-like effect. It's interesting because in the top centre panel I see a horse's head fading in and out. All of this is topped off with a fiery explosion.
 
 ## Gerdana Neis
 
@@ -236,6 +236,8 @@ I'm left hanging on whether the world has ended and it is too late or whether th
 
 ## CACHE CENTAURIDES
 
+https://opensea.io/assets/0x41a322b28d0ff354040e2cbc676f0320d8c8850d/4221
+
 missalsimpson has created a visually appealing image in this piece. The yellow colour highlights the background neutral tones and draws me upwards to the main focus of this piece; the dual aspect of the woman and the horse. These both possess a clean rendering. The rest of the piece possess a surreal liquidity to it and frames the image well. There is a certain hint of other-worldliness about this scene.
 
 ## MightyMoose
@@ -309,6 +311,20 @@ I like this work by Saito as it has photo-realistic qualities. It clearly repres
 https://superrare.co/artwork/twisted-1681
 
 Twisted by Shortcut is a colourful artwork that is simple in concept. A colourful rain falls downwards on a digital canvas and a chaotic twist is placed firmly at the centre. This artwork interests me as I like the clear separation of colour, but also the central swirl draws my eye inward to explore the vast colour explosion. Great plays of light and dark have been created within this twisted mass.
+
+## Skeenee
+
+### Bird on Silver | Honeycreeper
+
+https://knownorigin.io/edition/125300
+
+This artwork provides an interesting stylized Honeycreeper. The mix of green tones and strong outlines work to draw the viewer into the image. The bird itself has been framed with a lovely silver effect that catches the light well.
+
+### binaryRefinery(kandinsky) | Squares with Concentric Circles, 1913
+
+https://opensea.io/assets/0x568f9155eba8c09ff82ace25e2f113e99e023e07/13
+
+This bright, glitching piece immediately catches the eye. You can make the instant connection with Kandinsky, an effect achieved through the use of a GAN. Binary, ones and zeros move subtly in the background and thematically frame the image.
 
 ## Spontaneart
 
@@ -428,7 +444,7 @@ Artist vvvv has created a futuristic poster featuring androids and lasers that h
 https://makersplace.com/wiwowu/spiral-hue-2020-1-of-20-16225/
 
 I have found an interesting piece over on MakersPlace called Spiral Hue 2020 (clearly this has been named after my favourite currency).
-It reminds me of a plasma effect, but the artist has created defined swirls within the art within which the bright colours cycle, it’s very intriguing. Looking deeper, I can see that there are even smaller block like patterns that add texture to the artwork. This art is very eye catching.
+It reminds me of a plasma effect, but the artist has created defined swirls within the art within which the bright colours cycle, it’s very intriguing. Looking deeper, I can see that there are even smaller block-like patterns that add texture to the artwork. This art is very eye-catching.
 
 ## Zach
 
