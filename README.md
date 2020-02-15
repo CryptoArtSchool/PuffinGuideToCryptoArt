@@ -124,7 +124,7 @@ I spoke quietly to him, but he just gave me a blank stare as if he was caught up
 
 ## DinizBR
 
-### ***A Lonely Rose
+### \*\*\*A Lonely Rose
 
 https://opensea.io/assets/0x04f23ffaddddd335d3df6172d876e192fddd0eae/89
 
